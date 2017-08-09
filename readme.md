@@ -40,7 +40,7 @@ Hey, life is passing so fast. I've almost spent 40 years on earth. I have a love
 * Write a lot, write every day
 * Your name is your brand, manage your brand
 * Free is the best marketing strategy of all time
-* It is normal to feel nervous and excited when you talk in front of people
+* It is normal to feel nervous and excited when you talk in front of people, just don't scare
 * Talk slowly with high and lows in your words
 * Use body language when you speak
 * Never smoke, never cheat, never try... do not betray your principles
