@@ -20,7 +20,7 @@ Hey, life is passing so fast. I've almost spent 40 years on earth. I have a love
 * Always search for coding better
 * Never talk about politics and religions in public
 * Never be a fanatic
-* Life has no while and no black, see the colors in between
+* Life has no white and no black, see the colors in between
 * Embrace feedback even if they hurt
 * Focus on how to be more efficient and productive
 * Never get used to the things you hate
