@@ -26,7 +26,7 @@ Hey, life is passing so fast. I've almost spent 40 years on earth. I have a love
 * Never get used to the things you hate
 * Money cannot buy relationships
 * There always exists someone better than you
-* Never rise your voice, stop talking if you get too angry
+* Never raise your voice, stop talking if you get too angry
 * Always be fair, hear both voices to conclude
 * Produce something to feel your are living
 * Do shopping from good people, even if they are expensive
