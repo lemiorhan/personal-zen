@@ -43,7 +43,7 @@ Hey, life is passing so fast. I've almost spent 40 years on earth. I have a love
 * It is normal to feel nervous and excited when you talk in front of people, just don't scare
 * Talk slowly with high and lows in your words
 * Use body language when you speak
-* Never smoke, never cheat, never try... do not betray your principles
+* Never smoke, never cheat, never try bad habits... do not betray your principles
 * Retrospect your life regularly
 * Your family has the highest priority in your life
 
